@@ -1,1 +1,1 @@
-![title](https://ibb.co/1GB1sXPV)   
+![title](Harudev0914/Personal-Portfolio-Website/image-assets/logo-group.jpg)   

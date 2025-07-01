@@ -1,1 +1,1 @@
-![LOGO](/image-assets/logo-group.jpg)   
+![LOGO](/image-assets/logo-readme.png)   
